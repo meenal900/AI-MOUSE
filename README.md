@@ -10,3 +10,10 @@ Creating this has been a fascinating journey, and I’m excited about the possib
 🔹 Innovative accessibility solutions.
 🔹 Expanding the boundaries of human-computer interaction.
 
+
+
+
+
+
+https://github.com/meenal900/AI-MOUSE/assets/124462451/b343a2bc-74aa-4eb9-87c2-34c57e2649b2
+
